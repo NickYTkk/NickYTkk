@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NickYTkk
+- 😀 ola Eu sou O Nick YT
+- Bom Eu gosto De jogos fnf roblox etc cabo tchau
